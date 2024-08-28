@@ -1,7 +1,6 @@
 ### 👋
 
 - 🌱 Always learning about everything
-- 🧭 Also always I have a project in my mind
 - 👩‍🦱 Pronouns: she
 
 
